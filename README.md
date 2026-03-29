@@ -1,7 +1,7 @@
 
 # <p align="center"> [POWDER !!!](https://guns.lol/powderkegg)  
 
-### <p align="center">  [dni](https://rentry.co/powdersdnilist) / [prns](https://en.pronouns.page/@powderkegg_) / [ata](https://powderkegg.atabook.org/)
+### <p align="center">  [rentry](https://rentry.co/powsrentry) / [prns](https://en.pronouns.page/@powderkegg_) / [ata](https://powderkegg.atabook.org/)
 
 <p align="center">
 byi, im a freak and i make a lot of nasty jokes + im very direct and can be mean at times
